@@ -4,3 +4,6 @@ Czas się porzegnać z telewizją, aktorami, prezenterami, gwiazdami, muzykami, 
 Oni złamali serca uczciwym ludziom czas się z nimi porzgenać i wykopać im grób. 
 To gwiazdy ukrywały prawdę o wolnej energi i energi punktu zerowego w swoich archiwach ja te patenty komputerem i AI narysowawałem od nowa. Te afery to gwiazdy. 
 Gwiazdy zachowują się jak Jan Taratajcio jak zegarki i zegary że wolna energia punktu zergowego tylko dla lordów magnatów i hrabi i wolnomularstwa i masonów tylko dla gwiazd. 
+Ci ludzie gwiazdy mówili że każdy może być zwycięzcą a okazuje się że nikt ni był i nie jest zwycięzcą konkursów i afer TV i afer konkursowych. 
+Kolejni aferzyści to miss mody i ich tradycja promocji razem do gediatri i rozwód po 60 latach bycia razem bo musi iść do gediatri jak nie to postraszy alimentami. Jak by tabletek i zaperów by nie było w aptece. 21 wiek a nadal są afery przez gwiazdy z TV ukryte w szyfrowaniu danych ich profile są ukryte i miss uniwerse, świata i Polski. 
+Oni wszyscy zataili prawdę.
